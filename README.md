@@ -1,1 +1,76 @@
-λN΄λNλ^φιΎΈιώϋινΫ}΄η~ψοnΉλ^ιΞ½ο΄ηNφιώλ·ο΄O_υ―4Ρ­ε½µεΎλή·λο~Ήέ­΄αή=η]ΫΞΌοψοNχέ­Ωώ½ιή»ΩξχλΞ½λλχΩξ½ιύλnµλ»λαΞ½λ~Ήιξχλαή=ηοήΉιΞιώϋΩξχο®»Ϋή]ΫΞΌοψοNχέ­ΩώοNΉιξχιώωοn·λιώφλ½ιΞ½λ~ΉιξχλχΩώγήxΫέε½µεΎwοφλµιήλήψΫN5οNτεέΌλΞψοτο}ΪΩύλήλ½ο~ΌλήΉιΞΈο}λήΩώ¶λ^ΈλΎΉΩώwοφλµιήλήψΩή5οNτΩή¶οn½λΎΌο»οnΉλΫή]ΫΞΌοψοNχέ­ΩώχοφλµιήλήψΩξ½ιύΫέΡ­·Ϋ}΄γΉο~·οn½οNψλήινΡ®xλΞ½ο}΄οnΉοNο~½οοnύΫN·ιώοµλήο}΄λ]΄ο~½ιήτιΞΉΫNwοφλµιήλήψΫNµοNτιΞ½λ~µο½ιώΫMΌΫN΄ο~ψοnΉλ^ιΞ½ο_λ^τοMοNύλM½Ων΄η~ψοnΉλ^ιΞ½ο΄λ^ιΞοΎχΫNύιώωΫNψιύ΄λ~φλµοΉΫN½ιξψλφλ^·ο½ο®ΉΫNϋλ¶ΫNµοNτιΞ½λ~µο½ιώο}΄λ®φιώΫNtοήψλΞιν΄ο~·οn½οNψο}΄ο^ωλή·ιΎοέΫNxλΞ½ο}΄οNφιώλ·ο΄οNφιώϊλήΈλχΫNµΫN¶λ^χλή·ΫNΉοΞµιήτιΞΉΫNλ­΄λΞο½΄οΫN¶ο½ιΞΈΫNµιξΈΫNΈλτιΞοέ΄λ]΄η~ψοnΉλ^ιΞ½ο΄λ^τοMΫM΄γήψΫΎχΫNµΫN»οnΉλ^ψΫNχοµοnψλήλ½΄οNλήο΄λ®οm΄λnΉλΎ½ιξλφο}΄ιΞΉλ^φιξ½ιξ»ΫNwοφλµιήλήψΫNµιξΈΫNΊιώφΫNυο½λ~›ιΞύΫNτοnοούοN½ιξ»ΫNΈλ^ψλ]λφλήϊλΫNϋλ¶ΫNµοNτιΞ½λ~µο½ιώο}Ρ­Ϋ}·ΫN:λµοωοnΉο}Ρ­ΫM΄ΫMΩ®9λ^χοέ΄γΉοNιώύιήΉιξψέ­Ω­΄η~ψοnΉλ^ιΞ½ο΄λ^τοNλή·λ^ψλήιξχΫNµοnΉΫNΉλ^χοέ΄οΫNΈλτιΞοέ΄λ^λ΄ο~Όλ^φλΡ­ΫM΄ΫMΩ®=ιξψλφλ^·ο½ο®ΉΫNyγέΪΩ­ΫN7οnΉλ^ψλ΄λήοΉοnµλ~ψλήϊλ΄οΎΉλm΄λ^τοNλή·λ^ψλήιξχΫNϋλήψλΝ΄ιή½ιξ½ιήµιΝ΄λ~λ½ιξ»ΫNΉλ®ΊιώφοΡ­ΫM΄ΫMΩ®8λ^ψλ]΄η®½ο~ωλ^λήΪλ^ψλήινΪΩ­ΫM΄η~ψοnΉλ^ιΞ½ο΄λήοΉλΎφλ^ψλχΫNχλµιήλχο~οέ΄οΎ½οΌΫNτιώτολ^φΫNΈλ^ψλ]΄ο®½ο~ωλ^λήΪλ^ψλήιν΄ιΞ½λnφλ^φλήΉο}΄ιΞ½ιΎΉΫNλ^ψοNιώψιΞ½λmΫNwλµλnοnΩΝ΄λ^λ΄ηNιώψιΞύΩνΩ­΄ΫM΄Ω­ηnµοN½λ΄ηNφιώψιώψοήτλήλ½ΪΩ­ΫNuο½λ~›ιΞύΫN¶ο½ιΞΈΫNµιξΈΫN½οΉοnµοΉΫNιν΄οήοφΫNΈλ^ψλ]΄ο~·λήΉιξ·λ΄οNφιώλ·οχΩνΩ­΄ΫM΄Ω­ηNύοΌιώΩή·λοφλή·έ­Ω­΄γnωλήλ΄οΎΉλm΄λ^τοNχΫNωο~½ιξ»ΫNτοφλ΄ηNύοΌιώΩν΄αξΫNΊοnιξψΩήΉιξΈΫNΉοΞτλφλήΉιξ·λ΄οnΉο^ωλήφλΈΫ]Ρ­·Ϋ}΄γήο~ψλ^ιΞµο½ιώΡ­ί]ΫM΄Ω­γ~ιώλ΄οΌλ΄οnΉοNο~½οοnύέ­Ω­Ρ­΄ΫM΄ΫN΄λN΄λnµο~ΌΡ­΄ΫM΄ΫN»λήψΫN·ιΞιξΉΫNΌοψοNχέ­Ωώ»λήψλΞωλmλ~ιέηήηvεώyη~9ηnγ^γη~ψοnΉλ^ιΞ½οηNφιώλ·ολΎ½οΫM΄ΫM΄λ~ΈΫNwοφλµιήλήψΩήtοnι®Ήλ~ψΡ­΄ΫM΄ΫN΄λN΄Ρ­ίmΫM΄Ω­γ~φλµοΉΫNµΫNϊλήφοωλ^ΫNΉιξϊλήφιώιήΉιξψΫMΌοnΉλ~ιήλλΉλ½έ­Ω­Ρ­΄ΫM΄ΫN΄λN΄λnµο~ΌΡ­΄ΫM΄ΫNτοήψλΞινχΫMιέ΄ο®ΉιξϊΫNϊλο­ΫM΄ΫM΄ο~οφλ~ΉΫNϊλο­λn½ινλ^·ο½ο®µοΉΫM΄Ϋ}΄αώΫNλήοόΩώλ^·αώwΡ­΄ΫM΄ΫM·ΫNϊλο®\η~·οn½οNψο~\λ^·ο½ο®µοΉΫM΄Ϋ}΄αώΫN{λήλοΎχΡ­΄ΫM΄ΫN΄λN΄Ρ­ί}ΫM΄Ω­γήο~ψλ^ιΝ΄οΌλ΄οnΉο^ωλήφλΈΫNτλ^·ιΎµλΎΉο}ΪΩ­Ρ­ΫM΄ΫM΄λN΄λN¶λ^χλΝΫM΄ΫM΄οN½οM΄λήο~ψλ^ιΝ΄ο~ψοnΉλ^ιΞ½οΫM΄ΫM΄λN΄λMΡ­·Ϋ}΄ηχλ^»λΡ­υΩν΄ΫMΩ®vοΫNψλΞΉΫNwοφλµιήλήψΫNµοNτιΞ½λ~µο½ιώέ­Ω­Ρ­΄ΫM΄ΫN΄λN΄λnµο~ΌΡ­΄ΫM΄ΫNχοφλµιήλήψΫNφοΫNχοφλµιήλήψεώµοNτΩξτοέΫM΄ΫM΄λN΄λMΡ­φΩν΄ΫMΩ®5λ~·λχο}΄οΌλ΄λ^τοNλή·λ^ψλήιν΄λήΫNύιώωοm΄λnφιώϋο~ΉοmΪΩ­Ρ­ΫM΄ΫM΄η~ψοnΉλ^ιΞ½ο΄οΎ½ιΞΫNτοnο®½λΉΫNµΫNyηnΫN½ιν΄οΌλ΄οΉοnλήλ^ΫMΌοχοµιΞοέ΄λNΌοψοMΪΩύιΞλ~µιΞΌιώχοΪίΝωίMυλM½Ων΄αώτλΫNψλΞ½ο}΄ηvαΝ΄λήΫNύιώωοm΄οΎΉλm΄λnφιώϋο~Ήοm΄οΫN½ιξψλφλ^·ο΄οΎ½οΌΫNψλΞΉΫNµοNτιΞ½λ~µο½ιώΩνΡ­΄ΫM΄ΫN<λφλ»ο}΄λ]΄ο~½ιήτιΞΉΫNΉοΞµιήτιΞΉΫNλ­΄οΎΌλ^ψΫN΄ο~ψοnΉλ^ιΞ½ο_λ^τοMοNύλM΄ιή½λΎΌο΄λ~ιξψλ^½ινΪΡ­ΫM΄ΫM΄λN΄λNτοήψλΞινΫM΄ΫM΄λήοNοnψΫNχοφλµιήλήψΫNµο}΄ο~ψΡ­ΫM΄ΫM΄ο~ψΩξψλήψιΞΉΫΝ¶αήύΫN:λήφο~ψΫNwοφλµιήλήψΫN5οNτΫ]¶ΫέΡ­΄ΫM΄ΫNλ^λ΄έέ΄ο~ψΩξψλόο_λήοNωοΌΫn9ιξψλφΫNύιώωοm΄ιξµιήΉέ­¶ΩΝ΄ΫnwοφλµιήλήψΫNyο~Ήοm¶ΫέΫM΄ΫM΄ο~ψΩξϋοn½οΉΫΞΊΫn<λιΞΩΝ΄νΎλ^λέΫ]¶ΫέΡ­΄ΫM΄ΫN½λ­΄ο~ψΩξ¶οψοινΌΫn7ιΞ½λ~›ΫNλ¶ΫέΪΡ­΄ΫM΄ΫM΄ΫM΄ΫNχοοΎφλήψλΌΫn}ιώωΫN·ιΞ½λ~›λΈΫNψλΞΉΫN¶οψοινµΫm½Ρ­΄ΫM΄ΫN΄λN΄Ρ­Ϋ}·ΫN5ηN=ΫN8ιώ·ολοµο½ιώΡ­ηΌλήχΫNτοnι®Ήλ~ψΫNτοn½ιήµοn½ιΞύΫNωο½ιΞ½ν®Ήο}΄οΌλ΄η~ψοnΉλ^ιΞ½ο΄γ^tγέΫNvλΊλφΫNψιύ΄οΌλ΄ιώΊλ®½λ~½λ^ΫNwοφλµιήλήψΫNΈιώ·ολοµο½ιώΫNΊιώφΫNΈλψλ^½ιΞΉλ΄λήλ®οnλ^ψλήιν΄ιώΫNµο®µλήλ^¶ιΞΉΫNΊολ~ψλήιξχΫNµιξΈΫN·ιώοNιξΉιξψο}ΪΡ­Ω­΄ΫM΄εΎwοφλµιήλήψΫN8ιώ·ολοµο½ιώεέΌλΞψοτο}ΪΩύλλ~χΩξχοφλµιήλήψΩξ½ιύΫέΡ­·Ϋ}΄γ~ιξψοn½λnωο½ιξ»Ρ­ηΎΉΫNϋλλ~ιήΉΫN·ιώοφλή¶οψλήιξχΫNψιύ΄οΌλήχΫNτοnι®Ήλ~ψΫ]΄γΞΉοnΉΫΎχΫNΌιώϋΫNύιώωΫN·λ^ΫN·ιώοφλή¶οψλΪΡ­ί]ΫM΄Ω­γ®οn›ΫNψλΞΉΫNφλτιώχλήψιώφοέΩ­Ρ­φΩν΄ΫMΩ®7οnΉλ^ψλ΄λ]΄ιξΉο½΄λnφλ^λ~ΌΫNΊιώφΫNύιώωοm΄λ®Ήλ^ψοφλ΄ιώφΫN¶ο»ΫNΊλήόέ­Ω­΄ΫN΄λΎ½ο΄λ~Όλ·ιΎοψΫMλm΄λ®Ήλ^ψοφλοήοφΩήΊλµοωοnΉλM΄ιώφΫN΄λΎ½ο΄λ~Όλ·ιΎοψΫMλm΄λnωλΎΊλήόΩώύιώωοmλnωλΎΊλήόλMί}ΫM΄Ω­αήµιΎΉΫNύιώωοm΄λ~Όλ^λΎΉο}΄λ^λ΄λ~ιήλήψΫNψλΞΉιέ΄οΎ½οΌΫNΈλχλ~φλήτο½ο®ΉΫN·ιώιή½ο΄ιήΉο~χλ^»λχΩνΩ­ίΫM΄Ω­ηNωο~ΌΫNύιώωοm΄λ~Όλ^λΎΉο}΄οΫNύιώωοm΄λ®οn›λΈΫNφλτιώχλήψιώφοέΩ­Ρ­ωΩν΄ΫMΩ®wο¶ιή½ο΄λ]΄οNωιΞΫNφλυοΉο~ψΫNψιύ΄οΌλ΄ιήµλήΫN¶οnµιξ·λΝ΄ιώΊΫNψλΞ½ο}΄οnΉοNο~½οοnύΩνΩ­Ρ®tιΞΉλ^χλ΄λο~ωοnΉΫNύιώωοm΄λ~λΉΫNµλΌλφλχΫNψιύ΄οΌλ΄οNφιώλ·ο»ο}΄λ~λ½ιξ»ΫNχούιΞΉΫNµιξΈΫN½ιξ·ιΞωλΉο}΄λ^τοNφιώτοn½λ^ψλ΄οΉο~ψο}Ρ­Ϋ}·ΫNλή·λο~ΉΡ­ηΌλήχΫNτοnι®Ήλ~ψΫN½ο}΄ιΞ½λ~ΉιξχλΈΫNωιξΈλφΫNψλΞΉΫNγήxΫNλή·λο~ΉΫMΫNχλΉΫNψλΞΉΫN[αΞ=γ~9αξwγ]ΫΞγή7γη~9Ϋέ΄λ®½ιΞΉΫNΊιώφΫNΈλψλ^½ιΞχΩνΡ­·Ϋ}΄γ~ιξψλ^·οΡ®=λ­΄οήο΄λΞµο®ΉΫNµιξύΫNυοΉο~ψλήιξχΫNοm΄ο~ωλΎ»λχο½ιώο}ΫNτιΞΉλ^χλ΄λ®ΉλΫNΊοnΉλ΄οΫN·ιώοµλ~ψΫNψλΞΉΫNλ^½ιξψλ^½ιξΉοmΪΡ­εΎ}αώyηn_γΎ=η<η6εώyη~9ηnγ^γ]ΫΞΌοψοNχέ­Ωώ»λήψλΞωλmλ~ιέηήηvεώ;γήxγΞyγn_ηwγvαξ5αή9Ϋέ
+```markdown
+# Streamlit-Project π€
+
+A simple Streamlit application demonstrating core functionalities.
+
+## Description
+
+This repository contains a basic Streamlit application (`streamlit_app.py`) designed to provide a starting point for building interactive web applications with Python.  It showcases fundamental Streamlit features, allowing users to quickly understand and leverage Streamlit for their own projects. While the current version only contains a basic Streamlit app, it serves as a foundation that can be easily extended and customized for various purposes, such as data visualization, machine learning model deployment, or interactive dashboards.
+
+## Features
+
+*   **Interactive Web Interface:** Built with Streamlit for easy creation of web applications using Python.
+*   **Simple and Understandable:**  The code is designed to be clear and concise, making it easy for beginners to learn and modify.
+*   **Foundation for Expansion:** Provides a basic structure that can be easily extended with additional features and functionalities.
+*   **Quick Setup:**  Easy installation and usage with minimal dependencies.
+*   **Data Visualization Ready:** Streamlit makes data visualization easy, this project can be expanded for data visualization use cases.
+
+## Installation
+
+1.  **Clone the repository:**
+
+    ```bash
+    git clone https://github.com/your-username/Streamlit-Project.git
+    cd Streamlit-Project
+    ```
+
+2.  **Create a virtual environment (recommended):**
+
+    ```bash
+    python3 -m venv venv
+    source venv/bin/activate  # On Linux/macOS
+    # venv\Scripts\activate  # On Windows
+    ```
+
+3.  **Install Streamlit:**
+
+    ```bash
+    pip install streamlit
+    ```
+
+## Usage
+
+1.  **Run the Streamlit application:**
+
+    ```bash
+    streamlit run streamlit_app.py
+    ```
+
+2.  **Open the application in your browser:**  Streamlit will automatically open a new tab in your default web browser. If it doesn't, you can manually navigate to the address provided in the console (usually `http://localhost:8501`).
+
+3. **Interact with the App:** The current app likely contains minimal interactive elements. This is a base that should be customized!
+
+## API Documentation
+
+This project is a client-side application using the Streamlit framework. As such, specific API documentation is not applicable.  Refer to the official [Streamlit documentation](https://docs.streamlit.io/) for details on the available Streamlit API and components.
+
+## Contributing
+
+Contributions are welcome! Here's how you can contribute:
+
+1.  **Fork the repository.**
+2.  **Create a new branch** for your feature or bug fix: `git checkout -b feature/your-feature-name` or `git checkout -b fix/your-bug-fix`
+3.  **Make your changes.**
+4.  **Commit your changes:** `git commit -m "Add your commit message here"`
+5.  **Push to the branch:** `git push origin feature/your-feature-name` or `git push origin fix/your-bug-fix`
+6.  **Create a pull request.**
+
+Please ensure your code adheres to the project's coding style and includes relevant tests.
+
+## License
+
+This project is licensed under the [MIT License](LICENSE) - see the `LICENSE` file for details.  If no LICENSE file is present, this project is under the implied copyright of the owner, all rights reserved.
+
+## Contact
+
+Maintainer: Your Name / Your GitHub Username - [Your Email Address](mailto:your.email@example.com)
